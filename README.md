@@ -2,4 +2,3 @@
 
 Il était une fois un dragon solitaire nommé Drako. Il vivait dans une grotte au sommet d'une montagne, gardant un trésor scintillant. Les villageois le craignaient, mais Drako était en réalité un dragon gentil et solitaire.
 
-He was brave and strong. He wasnt gonna let his friends die over a banana problem. No one could stop the main protagonist of the story, superman and spiderman couldnt do anything to him.
